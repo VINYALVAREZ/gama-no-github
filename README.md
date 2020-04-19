@@ -1,0 +1,1 @@
+Estou gostando bastante do curso, pois está trazendo novos conhecimentos que eu não tinha além de uma nova experiência, ferramentas que estão cada vez mais sendo usadas hoje em dia.
